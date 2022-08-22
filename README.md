@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @oliviacasey
-- 👀 I’m interested in ... security and financial loan and learning tasks, happy healthy comfortable life for me and my son 
-- 🌱 I’m currently learning ... GitHub 
-- 💞️ I’m looking to collaborate on ... leaving me alone, they accidentally blended my info with my twin and someone else
-- 📫 How to reach me ... oliviabunny@gmail.com or olivia.casey@hsv-k12.org
+- 👀 I’m interested in ...a means of living everyday with a peace of mind, comfort and serenity
+- 🌱 I’m currently learning ...logistics
+- 💞️ I’m looking to collaborate on ... simple financial comfortability 
+- 📫 How to reach me ... oliviadcasey@gmail.com
 
 <!---
 oliviacasey/oliviacasey is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
